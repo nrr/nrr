@@ -1,4 +1,4 @@
-### Hi there 👋
+### Oh, look, GitHub brought back the `.plan` file. Hello there! 👋
 
 <!--
 **nrr/nrr** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
