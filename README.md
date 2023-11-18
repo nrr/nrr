@@ -1,1 +1,1 @@
-### How am I supposed to "live, laugh, love" in these conditions?
+### Perhaps it's more like "live, laugh, languish?"
